@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @tsmiller81
+- 👋 Hi, I’m Tammy Miller
 - 👀 I’m interested in any and everything that aligns with STEM (Science, Technology, Engineering, and Mathematics). 
 - 🌱 I’m currently learning the about Blockchain and cryptocurrency. I find them fascinating fields with immense potential. Not only in the technical aspects but the financial applications as well.
 - 💞️ I’m looking to collaborate on any and all available options that will provide me with the opportunity to acquire the skills and experience necessary to pursue and secure a career in my field of passion.
