@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Tammy @tsmiller81
 - 👀 I’m interested in any and everything that aligns with STEM (Science, Technology, Engineering, and Mathematics). 
-- 🌱 I’m currently learning the about Blockchain and cryptocurrency. I find them fascinating fields with immense potential. Not only in the technical aspects but the financial applications as well.
+- 🌱 I’m currently learning the Blockchain and cryptocurrency. I find them to be fascinating fields with immense potential. Not only in the technical aspects but the financial applications as well.
 - 💞️ I’m looking to collaborate on any and all available options that will provide me with the opportunity to acquire the skills and experience necessary to pursue and secure a career in my field of passion.
 - 📫 How to reach me is send me a message via email, DM, LinkedIn or X aka "twitter" as I am there for the crypto side of it.
 - 😄 Pronouns: She/Her/Hers
