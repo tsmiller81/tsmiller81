@@ -1,4 +1,4 @@
-- 👋 Hi there, welcome to my GitHub!
+- 👋 Hi there, welcome to my GitHub! Glad you're here to take a byte into the world of Tammy!
 - 👀 I’m interested in most anything related to technology that aligns with STEM (Science, Technology, Engineering, and Mathematics).
 - 🌱 I’m currently learning about cryptocurrency and blockchain development. I find them to be fascinating fields with immense potential. Not only in the technical aspects but the financial applications as well.
 - 💞️ I’m looking to collaborate on any and all available options that will provide me with the opportunity to acquire the skills and experience necessary to pursue and secure a career in my field of passion.
